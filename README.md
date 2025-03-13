@@ -1,0 +1,2 @@
+# repositorioParaClonar
+PODE COLAR O QUE TIVER AQUI, É UMA COLINHA - AQUI É PRA TODO MUNDO - LA ELE
